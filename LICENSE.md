@@ -1,4 +1,4 @@
-
+rivals secret Script offers the most advanced rivals Script, with auto-heal and auto-sell. Perfect for dominating any match.
 
 
 
